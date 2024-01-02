@@ -1,1 +1,1 @@
-# BinPal
+# Adobe Marketplace
